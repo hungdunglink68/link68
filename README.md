@@ -8,6 +8,6 @@ Com
 Commi
 C
 Commit
-Co
+C
 pô';
 
