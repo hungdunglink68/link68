@@ -12,5 +12,5 @@ Co
 pô';
 
 i[op
-kpo
+kp
 ư
