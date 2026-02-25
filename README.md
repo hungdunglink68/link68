@@ -10,7 +10,7 @@ C
 Commit
 Co
 pô';
-lô
+
 i[op
 kpoi
 ư
