@@ -11,4 +11,3 @@ Commit
 Co
 pô';
 i[
-k
