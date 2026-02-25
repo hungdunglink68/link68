@@ -10,5 +10,5 @@ C
 Commit
 Co
 pô';
-i[o
+i[
 k
