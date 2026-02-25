@@ -9,3 +9,8 @@ Commi
 C
 Commit
 Co
+pô';
+lôp
+i[op
+kpoi
+ư
